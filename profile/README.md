@@ -1,4 +1,4 @@
-# :video_game: let it hang out studios
+# :video_game: let it hang out LLC studios
 
 ### @reeebot
 ### @marianomeijome
